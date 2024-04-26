@@ -148,3 +148,7 @@ You have the right to use your NFTs for personal and commercial use, because the
 ---
 
 ### DEVELOPERS
+
+- **Discord:** Be part of our vibrant community on [Discord](https://discord.gg/XFDzJF9PdU).
+- **Follow Us on X:** Get the latest updates and participate in community polls on our [X](https://twitter.com/SaturnSeries) (twitter) feed.
+
